@@ -1,2 +1,2 @@
 大家好👋
-![photo](https://uapis.cn/static/uploads/9bd1b58da8_RKJiv0xqpWlA.webp)
+![photo](./0a4ebab8d696353a4c86b1bbb310b8aa.jpg)
