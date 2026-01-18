@@ -1,2 +1,2 @@
 大家好👋
-![photo](https://github.com/wpsnetwork/wpsnetwork/blob/main/0a4ebab8d696353a4c86b1bbb310b8aa.jpg)
+![photo](https://uapis.cn/static/uploads/9bd1b58da8_RKJiv0xqpWlA.webp)
